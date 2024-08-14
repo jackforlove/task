@@ -37,7 +37,7 @@
 
 刻骨轻创免费项目资源分享Q群：569789779
 
-优质资源电报群：https://t.me/keguqingchuang
+优质资源电报频道：https://t.me/+Bm4hdjtQx7ZmMzNl
 
 
 
