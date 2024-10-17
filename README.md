@@ -13,13 +13,11 @@
 
 众人好帮手 http://api.hongmiz.com/index.php/index/index/zhuceuser?invite=BAXBFA&appname=com.easymoon.zhongren
 
-元宝帮 http://file.ybaob.cn/ybbapp/index.html?rel1=506114
 
 赚赚街 https://t.taoymi.com/rg1/index.html#/register?id=14611726&appId=150&chlCode=Oppo
 
 抖兼职 http://h5.duoquz.com/invite/invite1.html?code=14645318&appType=5
 
-每天赚点 http://bs.hnmzq.com/yqhy_ldy_2022_6/?code=18605112&flag=1
 
 
 
